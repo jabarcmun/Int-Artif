@@ -1,1 +1,1 @@
-# Int-Artif
+# Intel-Artif
