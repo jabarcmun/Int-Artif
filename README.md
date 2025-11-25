@@ -1,1 +1,1 @@
-Estas son las activdades de Inteligencia Artificial de la carrera de LCDN de la UNRC
+Estas son las activIdades de Inteligencia Artificial de la LCDN de la UNRC
